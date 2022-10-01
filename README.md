@@ -1,2 +1,1 @@
-# ShadowHacker
-I am going to hack all of you and expose all your secrets. I can remotely control all of your gadgets remotely as long as i have your number and with that i can get your local ip address.  You can never hide any thing from technology
+I will hack all of you who have read this message and expose all your secrets in your gadgets either your phones, laptops or ipads. I am going to start with exposing KCA BSD classmonitir Elsie. See you
